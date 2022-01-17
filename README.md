@@ -1,2 +1,0 @@
-# abdelmouizz.github.io
-protfolio
